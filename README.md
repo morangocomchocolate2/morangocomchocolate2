@@ -9,8 +9,8 @@ Meu nome é Mariana Araújo
   ### Você pode entrar em contato comigo 📫
   
   marianasaraujo48@gmail.com
-  
-   ![](https://tenor.com/pt-BR/view/taylorswift-taylor-swift-gif-6186888659705193109)
+
+![](https://tenor.com/pt-BR/view/taylor-swift-sexy-taylor-swift-hot-taylor-swift-taylor-tswift-gif-18413638072899782095)
 
 
   
